@@ -1,0 +1,1 @@
+# ku_uz_web_scraning
